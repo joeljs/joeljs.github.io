@@ -1,3 +1,3 @@
 # joeljs.github.io
 
-www.jomo.dev
+www.linkedin.com/in/joel-moreno-023289271
